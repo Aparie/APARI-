@@ -16,9 +16,15 @@ int if you're in the same fandom but dont ship whatever character i am with your
 
 
 ︵‿︵‿︵‿︵
-im in my teens but lower than 20 and above 13.
+KINNIE of many.
 
 
 +
-if i dont int when you talk to me im either 1 ignoring you or 2 off tab, therefore whisp me.
+
+
+if i dont int when you talk to me im either 1 ignoring you or 2 off tab, therefore whisp me ofc.
 - - - - - -
+![download](https://github.com/Aparie/APARI-/assets/118179879/06c17172-80f1-497e-83e4-f8a90ba3496e)
+THATS ALLL <3333
+
+
